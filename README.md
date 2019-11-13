@@ -1,0 +1,2 @@
+# gimau
+akulah sang prabu
